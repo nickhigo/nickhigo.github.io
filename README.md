@@ -1,1 +1,0 @@
-# nickhigo.github.io
